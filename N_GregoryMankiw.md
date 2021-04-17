@@ -1,0 +1,5 @@
+## Principles of Economics
+* ISBN 13: 9781305585126
+* ISBN 10: 1305585127
+
+Provide an approachable, superbly written introduction to economics that allows all types of students to quickly grasp economic concepts and build a strong foundation with Mankiw's popular PRINCIPLES OF ECONOMICS, 8E. The most widely-used text in economics classrooms worldwide, this book covers only the most important principles to avoid overwhelming students with excessive detail. Extensive updates feature relevant examples to engage students. MindTap and Aplia™ digital course solutions are available to improve student engagement and retention with powerful student-focused resources. Within MindTap, students can use the highly acclaimed Graph Builder and Adaptive Test Prep features. All content has been carefully crafted around understanding student needs at key moments in your course. A team of award-winning teaching economists have added more relevance, engagement, and interactivity to teaching resources in this book's ancillary package, already the most commanding in the industry.

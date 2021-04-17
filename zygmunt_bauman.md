@@ -1,0 +1,7 @@
+## Liquid Times: Living in an Age of Uncertainty
+* ISBN 10: 0745639879
+* ISBN 13: 9780745639864
+
+The passage from ‘solid’ to ‘liquid’ modernity has created a new and unprecedented setting for individual life pursuits, confronting individuals with a series of challenges never before encountered. Social forms and institutions no longer have enough time to solidify and cannot serve as frames of reference for human actions and long-term life plans, so individuals have to find other ways to organise their lives. They have to splice together an unending series of short-term projects and episodes that don’t add up to the kind of sequence to which concepts like ‘career’ and ‘progress’ could meaningfully be applied. Such fragmented lives require individuals to be flexible and adaptable – to be constantly ready and willing to change tactics at short notice, to abandon commitments and loyalties without regret and to pursue opportunities according to their current availability. In liquid modernity the individual must act, plan actions and calculate the likely gains and losses of acting (or failing to act) under conditions of endemic uncertainty.
+
+Zygmunt Bauman’s brilliant writings on liquid modernity have altered the way we think about the contemporary world. In this short book he explores the sources of the endemic uncertainty which shapes our lives today and, in so doing, he provides the reader with a brief and accessible introduction to his highly original account, developed at greater length in his previous books, of life in our liquid modern times.
