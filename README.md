@@ -2,9 +2,3 @@
 
 
 Durante o curso estou procurando coletar todas as referencias bibliograficas sugeridas e na medida que estudo irei comentando minhas impressões de cada obra.
-
-
-Gene Sharp
-Fritchof Schuon
-Julius Evola
-Stanislavs Ladusãns
